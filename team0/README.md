@@ -1,3 +1,3 @@
-Team 0
+Team 0 Information
 
 - Jindae
